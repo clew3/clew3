@@ -16,7 +16,7 @@
     <br><img src="https://github.com/clew3/clew3/assets/38803188/4bf15fd3-ae66-44d5-a41b-48d0e958feb2" width="400"></br>
 </ul>
 
-<h5>I also enjoy hosting dinner parties. Here are a couple:</h5>
+<h5>I also enjoy planning and executing dinner parties. Here are a couple:</h5>
 
 <a href="https://www.instagram.com/reel/Cx0xkFeOxy-/">A farewell party for one of our friends</a>
 
